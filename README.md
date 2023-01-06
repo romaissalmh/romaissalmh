@@ -5,7 +5,7 @@
 - :relaxed: I’m currently learning to be consistent in life
 - :computer: I’m looking to collaborate on Open source projects
 - :metal: Ask me about anything(would definitely try helping you out)
-- :mailbox: How to reach me: hr_kessi@esi.dz
+- :mailbox: How to reach me: romaissa.kessi@gmail.com
 
 <br />
 
